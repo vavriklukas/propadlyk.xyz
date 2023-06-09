@@ -1,1 +1,0 @@
-# vavriklukas.github.io
